@@ -1,6 +1,6 @@
 
 
-<img width="500" height="375" alt="_" src="https://github.com/user-attachments/assets/c9635eff-10b2-4a55-bc44-c7ad2e4eca81" /> <img width="200" height="200" alt="tumblr_7775bd6bad2ef29faa854f59520a343e_1e9c59fa_500" src="https://github.com/user-attachments/assets/fda231ca-3904-40c9-8a04-dc39a1653db6" /> 
+<img width="500" height="375" alt="_" src="https://github.com/user-attachments/assets/c9635eff-10b2-4a55-bc44-c7ad2e4eca81" />
 
 
 .<img width="100" height="58" alt="tumblr_1c2d40749a556a5e1f85c3a9562ad59a_3ac76658_100" src="https://github.com/user-attachments/assets/9be1be9d-4d2f-4c4c-8140-1e17d234b9e9" />
