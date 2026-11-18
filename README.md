@@ -17,7 +17,7 @@
 
 ___
 &nbsp;&nbsp; &nbsp; &nbsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; 
-' ' the doctor said I had . . . tomato loss . Alright . ' ' 💽 🎸
+" It is better to be a warrior in a garden , than a gardener in a war " 💽 🎸
 ___
   
 <p align="middle">
